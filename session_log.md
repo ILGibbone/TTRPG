@@ -170,3 +170,26 @@ E così parte la proverbiale giostra di schiaffoni, il treno viene fermato a un 
 Ai nostri evidentemente non è mai stato detto, o preferiscono non curarsene, e per tutta risposta si ritrovano in hangover peso dentro a un dungeon, senza poteri, senza equip e senza HP.
 Ma alla fine, scherzone, era solo una sessione di valutazione andata un po' diversamente dal previsto!
 Elantinho recupera la situazione e assicura indagini e supporto, ma intanto il già noto angelo caduto Gideon porta avanti le sue mosse...
+
+
+### Varnhell
+
+### Isola dei Monky
+
+## Non svegliare il kaiju non dorme
+
+##  
+
+## Concilio 1
+
+## Concilio 2
+
+## Jurassic Storm
+
+## Sembra Hokkaido ma non è 1
+
+## Sembra Hokkaido ma non è 2
+
+## Sembra Hokkaido ma non è 3
+
+## Yokai Cucumber Appreciation Society
