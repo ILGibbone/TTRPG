@@ -171,14 +171,11 @@ Ai nostri evidentemente non è mai stato detto, o preferiscono non curarsene, e 
 Ma alla fine, scherzone, era solo una sessione di valutazione andata un po' diversamente dal previsto!
 Elantinho recupera la situazione e assicura indagini e supporto, ma intanto il già noto angelo caduto Gideon porta avanti le sue mosse...
 
+## Varnhell
 
-### Varnhell
+## Isola dei Monky
 
-### Isola dei Monky
-
-## Non svegliare il kaiju non dorme
-
-##  
+## Non svegliare il kaiju che dorme
 
 ## Concilio 1
 
@@ -193,3 +190,45 @@ Elantinho recupera la situazione e assicura indagini e supporto, ma intanto il g
 ## Sembra Hokkaido ma non è 3
 
 ## Yokai Cucumber Appreciation Society
+
+## Nello spazio nessuno può sentirti grugnire 1
+
+## Nello spazio nessuno può sentirti grugnire 2
+
+## Campioni!! Campioni!!
+
+## Sigil-lati
+
+
+
+## SECONDA STAGIONE
+
+# Verso una nuova base
+
+# Gobb & Leany truffe legali
+
+# Gith good 1
+
+# Gith good 2: Gli ammutinati della cassa 5
+
+# Il nome della rossa 1
+
+# Il nome della rossa 2: Terminenzio porta rancore
+
+# Il segreto degli Schmutzig 1
+
+# Il segreto degli Schmutzig 2: Xandas lava più calda
+
+# Portali traballanti
+
+# Come Sandro ottenne le sue ali 1
+
+# Come Sandro ottenne le sue ali 2: Le terre di confine intorno alla rocca
+
+# Barone Rosso Fuoco
+
+# I puffi sunnO)) che il non-morto c'è 1
+
+# I puffi sunn0)) che il non-morto c'è 2:l' ultimo spense il corvo
+
+
