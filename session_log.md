@@ -214,6 +214,10 @@ Elantinho recupera la situazione e assicura indagini e supporto, ma intanto il g
 
 ### Il nome della rossa 2: Terminenzio porta rancore
 
+### Fuga dal Campo Prigionia Rovente 1
+
+### Fuga dal Campo Prigionia Rovente 2: Ex-Factor 
+
 ### Il segreto degli Schmutzig 1
 
 ### Il segreto degli Schmutzig 2: Xandas lava più calda
