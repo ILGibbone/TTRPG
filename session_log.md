@@ -171,64 +171,63 @@ Ai nostri evidentemente non è mai stato detto, o preferiscono non curarsene, e 
 Ma alla fine, scherzone, era solo una sessione di valutazione andata un po' diversamente dal previsto!
 Elantinho recupera la situazione e assicura indagini e supporto, ma intanto il già noto angelo caduto Gideon porta avanti le sue mosse...
 
-## Varnhell
+### Varnhell
 
-## Isola dei Monky
+### Isola dei Monky
 
-## Non svegliare il kaiju che dorme
+### Non svegliare il kaiju che dorme
 
-## Concilio 1
+### Concilio 1
 
-## Concilio 2
+### Concilio 2
 
-## Jurassic Storm
+### Jurassic Storm
 
-## Sembra Hokkaido ma non è 1
+### Sembra Hokkaido ma non è 1
 
-## Sembra Hokkaido ma non è 2
+### Sembra Hokkaido ma non è 2
 
-## Sembra Hokkaido ma non è 3
+### Sembra Hokkaido ma non è 3
 
-## Yokai Cucumber Appreciation Society
+### Yokai Cucumber Appreciation Society
 
-## Nello spazio nessuno può sentirti grugnire 1
+### Nello spazio nessuno può sentirti grugnire 1
 
-## Nello spazio nessuno può sentirti grugnire 2
+### Nello spazio nessuno può sentirti grugnire 2
 
-## Campioni!! Campioni!!
+### Campioni!! Campioni!!
 
-## Sigil-lati
+### Sigil-lati
 
 
+# SECONDA STAGIONE
 
-## SECONDA STAGIONE
+### Verso una nuova base
 
-# Verso una nuova base
+### Gobb & Leany truffe legali
 
-# Gobb & Leany truffe legali
+### Gith good 1
 
-# Gith good 1
+### Gith good 2: Gli ammutinati della cassa 5
 
-# Gith good 2: Gli ammutinati della cassa 5
+### Il nome della rossa 1
 
-# Il nome della rossa 1
+### Il nome della rossa 2: Terminenzio porta rancore
 
-# Il nome della rossa 2: Terminenzio porta rancore
+### Il segreto degli Schmutzig 1
 
-# Il segreto degli Schmutzig 1
+### Il segreto degli Schmutzig 2: Xandas lava più calda
 
-# Il segreto degli Schmutzig 2: Xandas lava più calda
+### Portali traballanti
 
-# Portali traballanti
+### Come Sandro ottenne le sue ali 1
 
-# Come Sandro ottenne le sue ali 1
+### Come Sandro ottenne le sue ali 2: Le terre di confine intorno alla rocca
 
-# Come Sandro ottenne le sue ali 2: Le terre di confine intorno alla rocca
+### Barone Rosso Fuoco
 
-# Barone Rosso Fuoco
+### I puffi sunnO)) che il non-morto c'è 1
 
-# I puffi sunnO)) che il non-morto c'è 1
-
-# I puffi sunn0)) che il non-morto c'è 2:l' ultimo spense il corvo
+### I puffi sunn0)) che il non-morto c'è 2:l' ultimo spense il corvo
 
 
